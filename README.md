@@ -4,7 +4,7 @@
 
 ❤️ 👉 【地址一】 ：http://www.taohuayuan168.top
 
-❤️ 👉 【地址二】 ：188thy.com
+❤️ 👉 【地址二】 ：http://188thy.com
 
 ❤️ 👉 【地址三】 ：http://taohuayuan168.club
 
