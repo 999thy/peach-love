@@ -4,13 +4,13 @@
 
 全网唯一0广告，纯福利网站。欢迎分享!
 
-❤️ 👉 【地址一】 ：http://www.taohuayuan168.top
+❤️ 👉 【地址一】 ：http://138thy.com
 
-❤️ 👉 【地址二】 ：http://188thy.com
+❤️ 👉 【地址二】 ：http://520thy.com
 
-❤️ 👉 【地址三】 ：http://taohuayuan168.club
+❤️ 👉 【地址三】 ：http://521thy.com
 
-❤️ 👉 【地址四】 ：http://168thy.com
+❤️ 👉 【地址四】 ：http://91thy.com
 
 ❤️ 👉 【邮箱联系方式】 ：taohuayuan168@gmail.com
 
